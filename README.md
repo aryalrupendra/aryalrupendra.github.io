@@ -5,4 +5,6 @@ Please Click
 [My Portfolio](https://sites.google.com/view/aryalrupendra-portfolio/professional)
  to view my past works <br/>
  Working on Kitchen Automation Product under Prof. J.Ramkumar<br/>
- aryalrupendra@gmail.com | +917398088443 | rupendra@iitk.ac.in
+ aryalrupendra@gmail.com | +917398088443 | rupendra@iitk.ac.in <br/>
+ Thank You
+ 
