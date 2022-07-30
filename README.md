@@ -1,10 +1,10 @@
 Hi I am Rupendra Aryal<br/>
-I am doing M.Tech at IITK<br/>
-I like play with Machines and Robots<br/>
+I like to spend my time in design and testing of Machines and Robots<br/>
+I have degrees in mechanical engineering from IIT Kanpur [India] and IOE Thapathali Campus [Nepal] <br/>
 Please Click 
 [My Portfolio](https://sites.google.com/view/aryalrupendra-portfolio/professional)
- to view my past works <br/>
- Working on Kitchen Automation Product under Prof. J.Ramkumar<br/>
- aryalrupendra@gmail.com | +917398088443 | rupendra@iitk.ac.in <br/>
- Thank You
+to view my past works <br/>
+Currently I am  contributing on Design of Chemical Reactors for catalytic conversion of tar for waste pyrolysis plant<br/>
+aryalrupendra@gmail.com | +977 9851178964 [Urgent Only] <br/>
+Thank You
  
