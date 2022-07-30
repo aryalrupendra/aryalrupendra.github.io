@@ -4,7 +4,7 @@ I have degrees in mechanical engineering from IIT Kanpur [India] and IOE Thapath
 Please Click 
 [My Portfolio](https://sites.google.com/view/aryalrupendra-portfolio/professional)
 to view my past works <br/>
-Currently I am  contributing on Design of Chemical Reactors for catalytic conversion of tar for waste pyrolysis plant<br/>
+Currently I am  contributing on Design of Chemical Reactors for Catalytic Conversion of Tar for waste pyrolysis plant<br/>
 aryalrupendra@gmail.com | +977 9851178964 [Urgent Only] <br/>
 Thank You
  
