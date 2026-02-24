@@ -4,8 +4,7 @@ I like to spend my time in design and testing of Machines and Robots.<br/>
 I have degrees in mechanical engineering from IIT Kanpur [India] and IOE Thapathali Campus [Nepal]. <br/>
 Please Click 
 [My CV & Portfolio](https://sites.google.com/view/aryalrupendra-portfolio/home)
-<br/>
-and [Research](https://www.researchgate.net/profile/Rupendra_Aryal/research) <br/>
+and [Research](https://www.researchgate.net/profile/Rupendra_Aryal/research) 
 to view my past works. <br/>
 <br/>
 <br/>
